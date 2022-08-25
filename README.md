@@ -1,2 +1,2 @@
 # wallpapers
-my wallpaper collection (not all images are mine of course, this is just a collection)
+my wallpaper collection (this is not my art, this is just a compilation of art I like)
